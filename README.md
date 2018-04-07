@@ -7,7 +7,7 @@ Shooting from the left and right
 Then the need to have fancy dribbles allows it be even more chill
 
 My basketball ambitions picked up once i was on the church team
-Every practice working on form-shooting, making my jump shot better than before
+Every practice working on form-shooting, beginnning to build my shot from the ground up. Really focusing on the muscle memory and understanding how to shoot inside the paint and from the outside.
 I had the height, i have the speed, i have the youth, i have everything in my arresnal to become a great basketball player
 Yet, over my years,i became stagnant until recently. My jump shot wasn't very consisent from outside. I only made the right hand floater layup and occasionally used my footwork to beat out using fakes. But i wasn't able to sell it
 I learned the jab step but not to the point where it should be an instant move. I have to learn to body and work around
