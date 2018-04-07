@@ -3,8 +3,8 @@ Ball is Life
 I started in the 6th grade, shooting a ball in a hoop in the playground
 the fun started to increase once you liked winning 
 Then competing with everyone around you to become the best
-Shooting from the left and right
-Then the need to have fancy dribbles allows it be even more chill
+Shooter from the left and right
+I wanted to win every game and stay on the court as long as possible. 
 
 My basketball ambitions picked up once i was on the church team
 Every practice working on form-shooting, beginnning to build my shot from the ground up. Really focusing on the muscle memory and understanding how to shoot inside the paint and from the outside.
